@@ -10,6 +10,8 @@
 ![image](https://user-images.githubusercontent.com/86544736/124228984-f1d62100-dada-11eb-90c5-ba9d1537d5b3.png)
 # [splenty](https://www.mediafire.com/file/yson4soxv61kg1i/%257E_splenty%2527s.osk/file)
 ![image](https://user-images.githubusercontent.com/86544736/124229629-e6cfc080-dadb-11eb-932a-6eea335bce08.png)
+# [splenty æ](https://www.mediafire.com/file/hwg352ibk77nbop/splenty_%25C3%25A6.osk/file)
+![image](https://user-images.githubusercontent.com/86544736/124237125-31a20600-dae5-11eb-83b3-7034746f70ef.png)
 # [SrChispa [Rafis Edit]](https://www.mediafire.com/file/bxdfnykwgsqepmj/-_SrChispa_%255BRafis_Edit%255D.osk/file)
 ![image](https://user-images.githubusercontent.com/86544736/124230121-9c027880-dadc-11eb-82fa-087d4e916846.png)
 # [MonkoYaong+DT](https://www.mediafire.com/file/qrmuiogbetfzj9q/MonkoYaong%252BDT.osk/file)
@@ -36,4 +38,5 @@
 ![image](https://user-images.githubusercontent.com/86544736/124235793-b2f89900-dae3-11eb-80aa-98d05e0db5fc.png)
 # [StellarWolfff](https://www.mediafire.com/file/epjtbfigvivk9k8/%2523StellarWolfff.osk/file)
 ![image](https://user-images.githubusercontent.com/86544736/124236133-1aaee400-dae4-11eb-8ec8-c1b0ff826309.png)
-# [splenty æ](https://www.mediafire.com/file/hwg352ibk77nbop/splenty_%25C3%25A6.osk/file)
+
+
