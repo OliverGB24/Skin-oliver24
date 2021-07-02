@@ -48,3 +48,5 @@
 ![image](https://user-images.githubusercontent.com/86544736/124283787-4947b180-db1a-11eb-9f4b-4ec1f15337a0.png)
 # [Purple Mathi](https://www.mediafire.com/file/sheobzbacg7yhp8/Purple_Mathi.osk/file)
 ![image](https://user-images.githubusercontent.com/86544736/124285053-92e4cc00-db1b-11eb-8d9d-6226f6743089.png)
+# [Abyssal 2018-06-15](https://www.mediafire.com/file/s4azhl6ryjz3c0a/Abyssal_2018-06-15.osk/file)
+![image](https://user-images.githubusercontent.com/86544736/124285706-2e763c80-db1c-11eb-8808-4fec01946700.png)
