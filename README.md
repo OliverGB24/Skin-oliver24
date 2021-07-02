@@ -13,3 +13,4 @@
 # [SrChispa [Rafis Edit]](https://www.mediafire.com/file/bxdfnykwgsqepmj/-_SrChispa_%255BRafis_Edit%255D.osk/file)
 ![image](https://user-images.githubusercontent.com/86544736/124230121-9c027880-dadc-11eb-82fa-087d4e916846.png)
 # [MonkoYaong+DT](https://www.mediafire.com/file/qrmuiogbetfzj9q/MonkoYaong%252BDT.osk/file)
+![image](https://user-images.githubusercontent.com/86544736/124230496-1206df80-dadd-11eb-9894-ed065abfe894.png)
