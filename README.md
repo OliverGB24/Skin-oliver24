@@ -20,3 +20,5 @@
 ![image](https://user-images.githubusercontent.com/86544736/124231544-65c5f880-dade-11eb-8110-d2ff82d032ae.png)
 # [Wakson](https://www.mediafire.com/file/9ikidh9hsr0u25q/Wakson.osk/file)
 ![image](https://user-images.githubusercontent.com/86544736/124232049-1e8c3780-dadf-11eb-9d8e-54589082f791.png)
+# [Aiko](https://www.mediafire.com/file/rqo5xycsxvts40z/Aiko.osk/file)
+![image](https://user-images.githubusercontent.com/86544736/124232257-6e6afe80-dadf-11eb-8759-c1f90d1e0818.png)
