@@ -11,3 +11,4 @@
 # [splenty](https://www.mediafire.com/file/yson4soxv61kg1i/%257E_splenty%2527s.osk/file)
 ![image](https://user-images.githubusercontent.com/86544736/124229629-e6cfc080-dadb-11eb-932a-6eea335bce08.png)
 # [SrChispa [Rafis Edit]](https://www.mediafire.com/file/bxdfnykwgsqepmj/-_SrChispa_%255BRafis_Edit%255D.osk/file)
+![image](https://user-images.githubusercontent.com/86544736/124230121-9c027880-dadc-11eb-82fa-087d4e916846.png)
