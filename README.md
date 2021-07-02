@@ -28,3 +28,4 @@
 ![image](https://user-images.githubusercontent.com/86544736/124233700-192fec80-dae1-11eb-90a8-cde36955ff6f.png)
 # [BubbleGum](https://www.mediafire.com/file/tny1tkmp59hadmf/BubbleGum.osk/file)
 ![image](https://user-images.githubusercontent.com/86544736/124234225-c1de4c00-dae1-11eb-86d6-78fc1af1f95a.png)
+# [Aricin](https://www.mediafire.com/file/hx34f5z62lkprn0/Aricin.osk/file)
