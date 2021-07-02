@@ -24,3 +24,5 @@
 ![image](https://user-images.githubusercontent.com/86544736/124232257-6e6afe80-dadf-11eb-8759-c1f90d1e0818.png)
 # [ZachTV](https://www.mediafire.com/file/93yd849jd35rdic/ZachTV.osk/file)
 ![image](https://user-images.githubusercontent.com/86544736/124233201-99a21d80-dae0-11eb-9f41-88fe9b3c73ca.png)
+# [Aesthetic 1.3.11+Red+Cursor](https://www.mediafire.com/file/6idowowxlov3nnb/-%252BAesthetic_1.3.11%252BRed%252BCursor.osk/file)
+![image](https://user-images.githubusercontent.com/86544736/124233700-192fec80-dae1-11eb-90a8-cde36955ff6f.png)
