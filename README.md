@@ -44,6 +44,7 @@
 ![image](https://user-images.githubusercontent.com/86544736/124280936-3b446180-db17-11eb-98e6-8a63c7a29769.png)
 # [Aristia(Edit)+trail](https://www.mediafire.com/file/qbzxqwdlvdl02ml/Aristia%2528Edit%2529%252Btrail.osk/file)
 ![image](https://user-images.githubusercontent.com/86544736/124238887-1afcae80-dae7-11eb-863e-ffee2c7590b8.png)
-# [Mathi remake](https://www.mediafire.com/file/idxgmlt5bk8kqch/Mathi_remake.osk/file)
+# [Mathi Remake](https://www.mediafire.com/file/idxgmlt5bk8kqch/Mathi_remake.osk/file)
 ![image](https://user-images.githubusercontent.com/86544736/124283787-4947b180-db1a-11eb-9f4b-4ec1f15337a0.png)
-
+# [Purple Mathi](https://www.mediafire.com/file/sheobzbacg7yhp8/Purple_Mathi.osk/file)
+![image](https://user-images.githubusercontent.com/86544736/124285053-92e4cc00-db1b-11eb-8d9d-6226f6743089.png)
