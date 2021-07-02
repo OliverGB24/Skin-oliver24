@@ -50,3 +50,7 @@
 ![image](https://user-images.githubusercontent.com/86544736/124285053-92e4cc00-db1b-11eb-8d9d-6226f6743089.png)
 # [Abyssal 2018-06-15](https://www.mediafire.com/file/s4azhl6ryjz3c0a/Abyssal_2018-06-15.osk/file)
 ![image](https://user-images.githubusercontent.com/86544736/124285706-2e763c80-db1c-11eb-8808-4fec01946700.png)
+# [ddddd aireu](https://www.mediafire.com/file/kvfgo2xcngtpp9n/-_ddddd_aireu_-.osk/file)
+![image](https://user-images.githubusercontent.com/86544736/124286602-22d74580-db1d-11eb-8e27-d87cf65caa29.png)
+# [dddddv2](https://www.mediafire.com/file/v6gj3aj9ity0dso/-_dddddv2_-.osk/file)
+![image](https://user-images.githubusercontent.com/86544736/124286646-2bc81700-db1d-11eb-9095-3c0e38e781c7.png)
