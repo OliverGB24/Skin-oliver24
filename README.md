@@ -6,5 +6,5 @@
 ![image](https://user-images.githubusercontent.com/86544736/124227701-18935800-dad9-11eb-912a-99511fb8311d.png)
 # [JesusOmega『Planets』](https://skins.osuck.net/index.php?newsid=1489)
 ![image](https://user-images.githubusercontent.com/86544736/124228474-4036f000-dada-11eb-921f-8d46aba67882.png)
-# [WhiteCat](https://skins.osuck.net/index.php?newsid=1107)
+# [WhiteCat](https://www.mediafire.com/file/6250ar1z1jq0aes/-_%2523_WhiteCat_%25281.0%2529_%25E3%2580%258ECK%25E3%2580%258F_%2523-.osk/file)
 ![image](https://user-images.githubusercontent.com/86544736/124228984-f1d62100-dada-11eb-90c5-ba9d1537d5b3.png)
