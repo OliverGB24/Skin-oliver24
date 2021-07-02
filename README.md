@@ -14,5 +14,5 @@
 ![image](https://user-images.githubusercontent.com/86544736/124230121-9c027880-dadc-11eb-82fa-087d4e916846.png)
 # [MonkoYaong+DT](https://www.mediafire.com/file/qrmuiogbetfzj9q/MonkoYaong%252BDT.osk/file)
 ![image](https://user-images.githubusercontent.com/86544736/124230496-1206df80-dadd-11eb-9894-ed065abfe894.png)
-# [idke 1.2](https://www.mediafire.com/file/fyj6cxixixi14ze/idke_1.2_without_sliderendcircle.osk/file)
+# [idke 1.2 without sliderendcircle](https://www.mediafire.com/file/fyj6cxixixi14ze/idke_1.2_without_sliderendcircle.osk/file)
 ![image](https://user-images.githubusercontent.com/86544736/124230774-745fe000-dadd-11eb-96ce-325155a12a79.png)
