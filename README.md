@@ -9,3 +9,4 @@
 # [WhiteCat](https://www.mediafire.com/file/6250ar1z1jq0aes/-_%2523_WhiteCat_%25281.0%2529_%25E3%2580%258ECK%25E3%2580%258F_%2523-.osk/file)
 ![image](https://user-images.githubusercontent.com/86544736/124228984-f1d62100-dada-11eb-90c5-ba9d1537d5b3.png)
 # [splenty](https://www.mediafire.com/file/yson4soxv61kg1i/%257E_splenty%2527s.osk/file)
+![image](https://user-images.githubusercontent.com/86544736/124229629-e6cfc080-dadb-11eb-932a-6eea335bce08.png)
