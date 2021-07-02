@@ -4,3 +4,4 @@
 ![image](https://user-images.githubusercontent.com/86544736/124227620-fe597a00-dad8-11eb-9eab-6b0955b9a1cb.png)
  # [Ronald PY](https://www.mediafire.com/file/uqvgtazvlvezssb/Ronald_PY.osk/file)
 ![image](https://user-images.githubusercontent.com/86544736/124227701-18935800-dad9-11eb-912a-99511fb8311d.png)
+# [JesusOmega『Planets』](https://skins.osuck.net/index.php?newsid=1489)
