@@ -40,4 +40,5 @@
 ![image](https://user-images.githubusercontent.com/86544736/124236133-1aaee400-dae4-11eb-8ec8-c1b0ff826309.png)
 # [tony varv](https://www.mediafire.com/file/zk15yoim8xiasrp/tony_varv.osk/file)
 ![image](https://user-images.githubusercontent.com/86544736/124237983-20a5c480-dae6-11eb-8a76-a5403b1f9c74.png)
-
+# [Aristia(Edit)+trail](https://www.mediafire.com/file/qbzxqwdlvdl02ml/Aristia%2528Edit%2529%252Btrail.osk/file)
+![image](https://user-images.githubusercontent.com/86544736/124238887-1afcae80-dae7-11eb-863e-ffee2c7590b8.png)
