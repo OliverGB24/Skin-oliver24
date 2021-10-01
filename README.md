@@ -56,3 +56,5 @@
 ![image](https://user-images.githubusercontent.com/86544736/124286602-22d74580-db1d-11eb-8e27-d87cf65caa29.png)
 # [dddddv2](https://www.mediafire.com/file/v6gj3aj9ity0dso/-_dddddv2_-.osk/file)
 ![image](https://user-images.githubusercontent.com/86544736/124286646-2bc81700-db1d-11eb-9095-3c0e38e781c7.png)
+# [WWW EZ](https://www.mediafire.com/file/vzr5zu15k20zsg0/WWW_EZ.osk/file)
+![image](https://user-images.githubusercontent.com/86544736/135695890-32743171-707f-467f-a631-2b09ad4b2fca.png)
