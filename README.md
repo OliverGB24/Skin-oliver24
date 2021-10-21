@@ -32,6 +32,8 @@
 ![image](https://user-images.githubusercontent.com/86544736/124233700-192fec80-dae1-11eb-90a8-cde36955ff6f.png)
 # [BubbleGum](https://www.mediafire.com/file/tny1tkmp59hadmf/BubbleGum.osk/file)
 ![image](https://user-images.githubusercontent.com/86544736/124234225-c1de4c00-dae1-11eb-86d6-78fc1af1f95a.png)
+# [Bubbleman 20-07-04](https://www.mediafire.com/file/gnn1kabppvh9g0u/Bubbleman_20-07-04.osk/file)
+![image](https://user-images.githubusercontent.com/86544736/138199135-aec9a06e-4a3b-42eb-a519-ce9799405875.png)
 # [Aricin](https://www.mediafire.com/file/hx34f5z62lkprn0/Aricin.osk/file)
 ![image](https://user-images.githubusercontent.com/86544736/124234642-4c26b000-dae2-11eb-8e28-df26596f2d3e.png)
 # [boop](https://www.mediafire.com/file/ah4sfo4emxzxxme/boop.osk/file)
