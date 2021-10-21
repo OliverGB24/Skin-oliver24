@@ -60,3 +60,5 @@
 ![image](https://user-images.githubusercontent.com/86544736/135695890-32743171-707f-467f-a631-2b09ad4b2fca.png)
 # [aprx tourney](https://www.mediafire.com/file/jc6e4hn0l8zv7q7/aprx_tourney.osk/file)
 ![image](https://user-images.githubusercontent.com/86544736/138192823-e50fc674-ee1c-4451-9402-b8ebc4504e9d.png)
+# [aprx tourney 2](http://www.mediafire.com/file/450m0vu292rcilr/-_aprx_tourney_2.osk/file)
+![image](https://user-images.githubusercontent.com/86544736/138197080-5939b077-748b-4e31-a57a-5b1008a7b18f.png)
