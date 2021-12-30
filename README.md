@@ -70,3 +70,7 @@
 ![image](https://user-images.githubusercontent.com/86544736/139559226-2cbef5b0-2c03-4a4e-b261-7b0b809159ce.png)
 # [whitecat+NM+micca+edit](https://circle-people.com/wp-content/Skins/Micca/Micca%202020-07-04%20WC%20NM%20Edit.osk)
 ![image](https://user-images.githubusercontent.com/86544736/141229225-a1a50724-9855-437e-b484-ca764a458367.png)
+# [ytgrs](https://osuskins.net/skin/B9LpszT)
+![image](https://user-images.githubusercontent.com/86544736/147711941-e782d2d6-08b1-4c97-9cf4-5c27f4c4f642.png)
+# [Crai](https://mizaru2.s-ul.eu/wvuKfnkL)
+![image](https://user-images.githubusercontent.com/86544736/147712014-3473db9c-60ea-40d6-980f-6f1906d1c405.png)
