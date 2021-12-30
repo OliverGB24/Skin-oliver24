@@ -86,3 +86,5 @@
 ![image](https://user-images.githubusercontent.com/86544736/147712566-4eaa6855-187b-4259-89e5-91f89da5c4f5.png)
 # [Rakyero Mix Plus v1.0](https://www.dropbox.com/s/12z2nid320y26hs/Rakyero%20Mix%20Plus%20v1.0.osk?dl=0)
 ![image](https://user-images.githubusercontent.com/86544736/147712648-1be727ce-b8ed-4d24-a45b-a0fc9fcbe8aa.png)
+# [tranquil sublimity](https://skins.osuck.net/index.php?newsid=584)
+![image](https://user-images.githubusercontent.com/86544736/147712758-1eb1f78d-3d1e-4b8e-992f-1e87ff11ae44.png)
