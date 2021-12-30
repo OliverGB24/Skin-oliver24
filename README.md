@@ -88,6 +88,6 @@
 ![image](https://user-images.githubusercontent.com/86544736/147712648-1be727ce-b8ed-4d24-a45b-a0fc9fcbe8aa.png)
 # [tranquil sublimity](https://skins.osuck.net/index.php?newsid=584)
 ![image](https://user-images.githubusercontent.com/86544736/147712758-1eb1f78d-3d1e-4b8e-992f-1e87ff11ae44.png)
-
+# [Arnold24x24 hatsune miku 2.0](https://www.mediafire.com/file/x5tqda5fcqc8ild/-_%2523_%25E3%2580%258EArnold24x24%25E3%2580%258F_Hatsune_Miku_2.0_%257E.osk/file)
 ![screenshot894](https://user-images.githubusercontent.com/86544736/147794150-90bb187e-659a-4712-b10c-b9a48afb9839.jpg)
 
