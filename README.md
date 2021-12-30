@@ -78,3 +78,5 @@
 ![image](https://user-images.githubusercontent.com/86544736/147712272-f5a5b69e-86c3-4eab-be17-b2dc862ebdcb.png)
 # [tko](https://www.dropbox.com/s/8j6w25m2hnk5vfy/tko.osk?dl=0)
 ![image](https://user-images.githubusercontent.com/86544736/147712319-cbde10ca-ffca-4f55-a479-aea7d7b5f09f.png)
+# [New dumii edit](https://www.dropbox.com/s/1suw8i740ng6krv/-%2BAesthetic%201.3.9.osk?dl=0)
+![image](https://user-images.githubusercontent.com/86544736/147712417-84e09edd-6e39-4e1e-9283-1b4a895ba413.png)
