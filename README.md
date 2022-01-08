@@ -41,6 +41,7 @@
 # [Miraie no followpoint](https://www.mediafire.com/file/o6b5vo12gi63kqj/Miraie_III.osk/file)
 ![image](https://user-images.githubusercontent.com/86544736/124235793-b2f89900-dae3-11eb-80aa-98d05e0db5fc.png)
 # [Miraie with followpoint](https://osuskins.net/skin/Le4w7zw)
+![image](https://user-images.githubusercontent.com/86544736/148652122-1e5fde09-2b96-4fa1-969a-3a8dbb8765e1.png)
 # [StellarWolfff](https://www.mediafire.com/file/epjtbfigvivk9k8/%2523StellarWolfff.osk/file)
 ![image](https://user-images.githubusercontent.com/86544736/124236133-1aaee400-dae4-11eb-8ec8-c1b0ff826309.png)
 # [tony varv](https://www.mediafire.com/file/zk15yoim8xiasrp/tony_varv.osk/file)
