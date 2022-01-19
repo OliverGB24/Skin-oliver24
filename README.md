@@ -78,6 +78,7 @@
 ![image](https://user-images.githubusercontent.com/86544736/147712014-3473db9c-60ea-40d6-980f-6f1906d1c405.png)
 # [Yadowo](https://www.mediafire.com/file/nocnz1wuztb6692/-_Yadowo%2527s.osk/file)
 ![image](https://user-images.githubusercontent.com/86544736/147712272-f5a5b69e-86c3-4eab-be17-b2dc862ebdcb.png)
+# [Yadowo 2](https://www.mediafire.com/file/0oa6n6t9yeq3ojc/-_Yadowo%2527s_2.osk/file)
 # [tko](https://www.dropbox.com/s/8j6w25m2hnk5vfy/tko.osk?dl=0)
 ![image](https://user-images.githubusercontent.com/86544736/147712319-cbde10ca-ffca-4f55-a479-aea7d7b5f09f.png)
 # [New dumii edit](https://www.dropbox.com/s/1suw8i740ng6krv/-%2BAesthetic%201.3.9.osk?dl=0)
