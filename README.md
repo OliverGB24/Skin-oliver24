@@ -100,7 +100,7 @@
 ![screenshot897](https://user-images.githubusercontent.com/86544736/147794857-a7f1e2f6-70e9-4ef7-a352-aefae2b1904f.jpg)
 # [Mind Reader himeko v1.4](https://www.mediafire.com/file/zvdfkn24679xjnd/-_Mind_Reader_himeko_v1.4_-.osk/file)
 
-# [d](https://www.mediafire.com/file/rkq62wircmqisoo/Sanity_%2528feat._himeko%2529_-_edit.osk/file)
+# [Sanity (feat. himeko) - edit](https://www.mediafire.com/file/rkq62wircmqisoo/Sanity_%2528feat._himeko%2529_-_edit.osk/file)
 
 # [?]
 
