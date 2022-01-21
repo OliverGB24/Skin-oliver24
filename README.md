@@ -102,8 +102,8 @@
 
 # [Sanity (feat. himeko) - edit](https://www.mediafire.com/file/rkq62wircmqisoo/Sanity_%2528feat._himeko%2529_-_edit.osk/file)
 
-# [?]
-
+# [GOTHIC LOLITA FEVER](https://skins.osuck.net/index.php?newsid=1269)
+![image](https://user-images.githubusercontent.com/86544736/150612300-be414ca8-2d35-4e3b-873a-505aa10332f5.png)
 # [?]
 
 # [?]
