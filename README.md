@@ -51,7 +51,7 @@
 # [vv idke trail](https://skins.osuck.net/index.php?newsid=866)
 ![image](https://user-images.githubusercontent.com/86544736/150627451-d1d838b2-dc7c-4b12-8f2a-540de4c8eb39.png)
 # [Aristia(Edit)+trail](https://www.mediafire.com/file/qbzxqwdlvdl02ml/Aristia%2528Edit%2529%252Btrail.osk/file)
-![image](https://user-images.githubusercontent.com/86544736/124238887-1afcae80-dae7-11eb-863e-ffee2c7590b8.png)
+![image](https://user-images.githubusercontent.com/86544736/150627473-3ec73590-3d0c-438c-a24d-945e50a3cf5c.png)
 # [Aristia edit](https://skins.osuck.net/index.php?newsid=485)
 ![image](https://user-images.githubusercontent.com/86544736/150627486-61272678-2315-4cfd-b591-379891913f74.png)
 # [Mathi Remake](https://www.mediafire.com/file/idxgmlt5bk8kqch/Mathi_remake.osk/file)
@@ -116,8 +116,7 @@
 
 # [?]
 
-# [Aristia edit+trail](https://skins.osuck.net/index.php?newsid=863)
-![image](https://user-images.githubusercontent.com/86544736/150627473-3ec73590-3d0c-438c-a24d-945e50a3cf5c.png)
+# [?]
 
 # [?]
 
