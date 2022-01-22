@@ -110,12 +110,12 @@
 
 # [AA Zero Two Edit](https://www.mediafire.com/file/h8qas4rre3l1tjg/AA_-_Zero_Two_-_Edit.osk/file)
 
-# [?]
-
-# [?]
-
-# [?]
-
+# [vv idke trail](https://skins.osuck.net/index.php?newsid=866)
+![image](https://user-images.githubusercontent.com/86544736/150627451-d1d838b2-dc7c-4b12-8f2a-540de4c8eb39.png)
+# [Aristia edit+trail](https://skins.osuck.net/index.php?newsid=863)
+![image](https://user-images.githubusercontent.com/86544736/150627473-3ec73590-3d0c-438c-a24d-945e50a3cf5c.png)
+# [Aristia edit](https://skins.osuck.net/index.php?newsid=485)
+![image](https://user-images.githubusercontent.com/86544736/150627486-61272678-2315-4cfd-b591-379891913f74.png)
 # [?]
 
 # [?]
