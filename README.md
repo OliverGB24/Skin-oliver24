@@ -120,8 +120,8 @@
 
 # [azer8dawn](https://skins.osuck.net/index.php?newsid=450)
 ![image](https://user-images.githubusercontent.com/86544736/150652860-2b55a19a-fc3d-44a3-a376-bbaca93e78cc.png)
-# [?]
-
+# [RyuK Azerite Megumin Modified](https://www.dropbox.com/s/1ikfbn79xnenwk2/-%20Azerite%20Modif%20-.osk?dl=0)
+![image](https://user-images.githubusercontent.com/86544736/150652992-760e4876-3277-4305-aa05-fd53d21d2b14.png)
 # [?]
 
 # [?]
