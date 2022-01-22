@@ -118,7 +118,8 @@
 
 # [AA Zero Two Edit](https://www.mediafire.com/file/h8qas4rre3l1tjg/AA_-_Zero_Two_-_Edit.osk/file)
 
-# [?]
+# [azer8dawn](https://skins.osuck.net/index.php?newsid=450)
+![image](https://user-images.githubusercontent.com/86544736/150652825-a6286db1-b7a7-4f65-b65c-0baf1603c7b7.png)
 
 # [?]
 
