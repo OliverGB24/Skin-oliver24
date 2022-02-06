@@ -124,8 +124,8 @@
 ![image](https://user-images.githubusercontent.com/86544736/150652992-760e4876-3277-4305-aa05-fd53d21d2b14.png)
 # [Misaki Tobisawa](https://skins.osuck.net/index.php?newsid=171)
 ![image](https://user-images.githubusercontent.com/86544736/152667075-44eb3e0f-0d49-47e8-ad83-0ca711caa86c.png)
-# [?]
-
+# [DA BEST SKIN EVBR](https://skins.osuck.net/index.php?newsid=592)
+![image](https://user-images.githubusercontent.com/86544736/152667121-14bc94fa-8c1b-4cc7-8a7a-c16b0ae0aaf1.png)
 # [?]
 
 # [?]
