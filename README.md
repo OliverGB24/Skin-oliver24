@@ -134,5 +134,18 @@
 # [Ryanstolefromkevin](https://www.mediafire.com/file/klu0v62m6mzwemy/-_Ryanstolefromkevin.osk/file)
 ![image](https://user-images.githubusercontent.com/86544736/153732234-2fbe8e31-7d6d-40e7-b70d-d443b4d864fc.png)
 # [?]
-![image](https://user-images.githubusercontent.com/86544736/153732396-7e709822-0bb6-4758-9cb1-a1f4915caa6d.png)
+
+# [?]
+
+# [?]
+
+# [?]
+
+# [?]
+
+# [?]
+
+# [?]
+
+# [?]
 
