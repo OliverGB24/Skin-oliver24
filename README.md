@@ -30,6 +30,9 @@
 ![image](https://user-images.githubusercontent.com/86544736/124233201-99a21d80-dae0-11eb-9f41-88fe9b3c73ca.png)
 # [Aesthetic 1.3.11+Red+Cursor](https://www.mediafire.com/file/6idowowxlov3nnb/-%252BAesthetic_1.3.11%252BRed%252BCursor.osk/file)
 ![image](https://user-images.githubusercontent.com/86544736/124233700-192fec80-dae1-11eb-90a8-cde36955ff6f.png)
+# [Aesthetic 1.3.13+Solo](https://drive.google.com/file/d/1n5YU9YF0S3Xj58jMHf7k_kPooLOSCKka/view)
+![image](https://user-images.githubusercontent.com/86544736/153732396-7e709822-0bb6-4758-9cb1-a1f4915caa6d.png)
+
 # [BubbleGum](https://www.mediafire.com/file/tny1tkmp59hadmf/BubbleGum.osk/file)
 ![image](https://user-images.githubusercontent.com/86544736/124234225-c1de4c00-dae1-11eb-86d6-78fc1af1f95a.png)
 # [Bubbleman 20-07-04](https://www.mediafire.com/file/gnn1kabppvh9g0u/Bubbleman_20-07-04.osk/file)
@@ -131,3 +134,5 @@
 # [Ryanstolefromkevin](https://www.mediafire.com/file/klu0v62m6mzwemy/-_Ryanstolefromkevin.osk/file)
 ![image](https://user-images.githubusercontent.com/86544736/153732234-2fbe8e31-7d6d-40e7-b70d-d443b4d864fc.png)
 # [?]
+![image](https://user-images.githubusercontent.com/86544736/153732396-7e709822-0bb6-4758-9cb1-a1f4915caa6d.png)
+
