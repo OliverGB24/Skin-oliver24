@@ -140,7 +140,7 @@
 ![image](https://user-images.githubusercontent.com/86544736/154152353-d25c8b95-8aaa-4ca6-a70e-e0e1a112ecb4.png)
 # [Lifeline v2](https://skins.osuck.net/index.php?newsid=1804)
 ![image](https://user-images.githubusercontent.com/86544736/154152404-b9e7c7dd-fc07-4071-8126-56a4aa3a5543.png)
-# [NikaDe Zero Two]
+# [NikaDe Zero Two](https://skins.osuck.net/index.php?newsid=1329)
 ![image](https://user-images.githubusercontent.com/86544736/154152519-c11382bf-b601-4fe3-a290-987fb5943e52.png)
 
 # [?]
