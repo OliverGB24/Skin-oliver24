@@ -136,10 +136,10 @@
 ![image](https://user-images.githubusercontent.com/86544736/152706597-0f73bd8e-8299-4dbd-bfe6-501d9cc21682.png)
 # [Ryanstolefromkevin](https://www.mediafire.com/file/klu0v62m6mzwemy/-_Ryanstolefromkevin.osk/file)
 ![image](https://user-images.githubusercontent.com/86544736/153732234-2fbe8e31-7d6d-40e7-b70d-d443b4d864fc.png)
-# [?]
-
-# [?]
-
+# [Monochrome Lifeline](https://skins.osuck.net/index.php?newsid=1528)
+![image](https://user-images.githubusercontent.com/86544736/154152353-d25c8b95-8aaa-4ca6-a70e-e0e1a112ecb4.png)
+# [Lifeline v2](https://skins.osuck.net/index.php?newsid=1804)
+![image](https://user-images.githubusercontent.com/86544736/154152404-b9e7c7dd-fc07-4071-8126-56a4aa3a5543.png)
 # [?]
 
 # [?]
