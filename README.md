@@ -143,7 +143,7 @@
 # [NikaDe Zero Two](https://skins.osuck.net/index.php?newsid=1329)
 ![image](https://user-images.githubusercontent.com/86544736/154152519-c11382bf-b601-4fe3-a290-987fb5943e52.png)
 
-# [?]
+# [Candy Powder](https://skins.osuck.net/index.php?newsid=2152)
 
 # [?]
 
