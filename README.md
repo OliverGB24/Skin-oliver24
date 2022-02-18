@@ -145,8 +145,8 @@
 
 # [Candy Powder](https://skins.osuck.net/index.php?newsid=2152)
 
-# [?]
-
+# [Azerite minimalist rainbow](https://skins.osuck.net/index.php?newsid=328)
+![image](https://user-images.githubusercontent.com/86544736/154750146-86ef5c7e-087c-4bc4-bf5c-91b6f0cef012.png)
 # [?]
 
 # [?]
