@@ -156,7 +156,8 @@
 # [MINECRAFT KRUGI](https://skins.osuck.net/index.php?newsid=421)
 ![image](https://user-images.githubusercontent.com/86544736/155903725-ea1a3e10-f62d-4df8-9bc0-cc9da0845957.png)
 
-# [?]
+# [Echidna](https://skins.osuck.net/index.php?newsid=1674)
+![image](https://user-images.githubusercontent.com/86544736/155904059-f3192bf8-dcc1-4d09-a873-deeed4d4563f.png)
 
 # [?]
 
