@@ -153,7 +153,8 @@
 ![image](https://user-images.githubusercontent.com/86544736/154827719-5ad67fa1-4ff6-4b52-874c-4af3e14414f1.png)
 # [Yoko+Prinz Eugen](https://skins.osuck.net/index.php?newsid=464)
 ![image](https://user-images.githubusercontent.com/86544736/154827737-5b3f1be4-e645-490b-8b90-846bd7937c46.png)
-# [?]
+# [MINECRAFT KRUGI](https://skins.osuck.net/index.php?newsid=421)
+![image](https://user-images.githubusercontent.com/86544736/155903725-ea1a3e10-f62d-4df8-9bc0-cc9da0845957.png)
 
 # [?]
 
