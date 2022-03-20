@@ -160,9 +160,9 @@
 # [Echidna](https://skins.osuck.net/index.php?newsid=1674)
 ![image](https://user-images.githubusercontent.com/86544736/155904059-f3192bf8-dcc1-4d09-a873-deeed4d4563f.png)
 
-# [nick1324 v1.2.1]
+# [nick1324 v1.2.1](https://www.mediafire.com/file/4rcj3vn1r2uq7wv/-_%25E3%2580%258ASN%25E3%2580%258B_nick1324_v1.2.1.osk/file)
 ![image](https://user-images.githubusercontent.com/86544736/159144703-695d4ead-f720-4459-bfdd-bbb82e71e771.png)
-# [?]
+# [KatsushikaHokusai](https://www.mediafire.com/file/c68s2s0dnmqvdxp/%23_KatsushikaHokusai.osk/file)
 ![image](https://user-images.githubusercontent.com/86544736/159144709-b59e7e06-3a2e-45da-a7e5-d39516ee17ef.png)
 
 # [?]
